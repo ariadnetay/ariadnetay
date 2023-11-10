@@ -1,8 +1,8 @@
-Hi, I’m @ariadnetay :)
+Hi, I’m Ariadne Tay :)
 
 I write romance stories in both prose and interactive fiction. I'm working on converting one of my pieces into a Ren'Py game. Yay!
 
-Read Meat Cute, a short gaysian romance story, at https://meatcute.cinnamonromance.com. 
+Read _**Meat Cute**_, a short gaysian romance story, at https://meatcute.cinnamonromance.com. 
 You can also find it on Amazon Kindle, Google Books, Barnes & Noble, and Kobo.
 
 Instagram: https://instagram.com/ariadnewrites
